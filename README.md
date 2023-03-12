@@ -1,2 +1,2 @@
 # Testicles-and-Ovaries-As-Second-Brains
-The Testicles or Ovaries can be used to educate and train stem cells.
+The Testicles or Ovaries can be used to educate and train stem cells. If the testicles or ovaries are ignored as functional brains, they will remain small and only provide sexual urges as it is their only knowledge. The testicles and ovaries can be used to compute Math, Science, Literature, and promote healthy testosterone in males or healthy estrogen in females.
