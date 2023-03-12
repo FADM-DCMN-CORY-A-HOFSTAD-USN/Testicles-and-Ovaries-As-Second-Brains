@@ -7,7 +7,7 @@ The testicles and ovaries are small if only used for reproduction.
 Larger growth is healthy for evolution.
 Stem cells travel from the testicles to the brain and back.
 During mating, the stem cells are ejected into sperm to fertilize a female.
-stem cells which come from two brain environments are better than stem cells that come from one brain environments.
+Stem cells which come from two brain environments are better than stem cells that come from one brain environments.
 Make every decision using two brains.
 Forget about sex if it is not specifically to mate with a woman who you want to raise children with.
 You testicles must be used to promote education and strength.
