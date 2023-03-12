@@ -18,7 +18,7 @@ Remember that new life must be educated. Educate your stem cells instead of kill
 Your children will be smarter and stronger than those who do not follow this routine.
 
 
-#Differences in Males and Females
+# Differences in Males and Females
 At conception, the spine forms with two brains. The brain that grows larger determines the gender of the species.
 If the MALE brain grows larger, the head develops around the larger brain.
 If the FEMALE brain grows larger the head develops around the larger brain.
